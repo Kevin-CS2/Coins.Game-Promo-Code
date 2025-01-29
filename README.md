@@ -23,6 +23,8 @@ A Coins.Game promo code is a unique alphanumeric code that unlocks specific bonu
 | HELLA | Claim 100 No Deposit Free Spins |
 | HELLAGOOD | Get up to 100% bonus to your deposit |
 
+![image](https://hellagood.marketing/wp-content/uploads/2024/02/coins-game-casino-promo-code.jpg)
+
 ## **How to Get a Bonus on Coins.Game?**
 
 To claim a bonus on Coins.Game, follow these easy steps:
